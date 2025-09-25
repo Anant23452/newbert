@@ -45,7 +45,7 @@ If you're a college student looking to enhance your academic experience, join th
 
 **Contact Us:**
 
-For any inquiries or feedback, please email us at [i@nwbert.com](@newbert.com) 📧. We're always happy to hear from you 😊.
+For any inquiries or feedback, please email us at [i@nwbert.com](@newbert.com) 📧. We're always happy to hear from you 😊.n
 
 
 
